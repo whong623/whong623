@@ -15,3 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ... -->
 
 Hi my name is William Hong and I just failed my physics midterm.
+I am going to try my best in other courses!
+I will just make money from investing
